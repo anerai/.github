@@ -1,5 +1,5 @@
-# ANERAI - Elevando el potencial humano
-IMPULSANDO SOLUCIONES ADAPTABLES Y EVOLUTIVAS
+# ANERAI
+* Elevamos el potencial humando con **Evolución Consciente** a través de la Simbiosis Humano-IA
+* impulsamos soluciones adaptativas y evolutivas
 
-"**Evolución Consciente** a través de la Simbiosis Humano-IA"
 
